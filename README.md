@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @CaffeineDeceit
-- 🌱 I’m currently trying to survive university
+- 🌱 I’m currently trying to survive school
 - 📫 How to reach me: 872925213@qq.com 
 - 😄 Pronouns: she/her/hers
